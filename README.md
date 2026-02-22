@@ -3,7 +3,7 @@ Privacy Policy for Neon Catch
 Last updated: 22-02-2026
 
 Introduction
-Thank you for choosing The Ball Game. We respect your privacy and are committed to providing a secure and enjoyable gaming experience. This Privacy Policy explains that we do not collect, store, or share any personal information or game data from your use of the App.
+Thank you for choosing Neon Catch. We respect your privacy and are committed to providing a secure and enjoyable gaming experience. This Privacy Policy explains that we do not collect, store, or share any personal information or game data from your use of the App.
 
 Information We Collect
 We do not collect, store, or share any personal information or game data, including:
